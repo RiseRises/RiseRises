@@ -1,6 +1,7 @@
 －嗨，我是RiseRises（中文名）
 - 👀 I’m interested in ...everything about making money and stand out
-- 🌱 I’m currently learning 。。录取通知书还没发呢
+- 🌱 I’m currently learning zidonghua
+- 自动化专业
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me --My email：2462536001@qq.com   我的邮箱：2462536001@qq.com
 
