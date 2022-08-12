@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RiseRises  (｡･∀･)ﾉﾞ嗨,我系中国一名在读大学生 A student of Chinese college
+－嗨，我是RiseRises（中文名）
 - 👀 I’m interested in ...everything about making money and stand out
 - 🌱 I’m currently learning 。。录取通知书还没发呢
 - 💞️ I’m looking to collaborate on ...
